@@ -1,0 +1,1 @@
+# Automated-Trends-Collection-Interactive-Analysis-of-Greek-Shoe-Models
